@@ -1,2 +1,2 @@
-# Are-You-also-Fooled-AI
+# Are-You-also-Fooled-By-AI
 Are You also Fooled AI
